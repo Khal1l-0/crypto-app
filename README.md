@@ -1,4 +1,4 @@
-![Bg](https://cdn.7days.ru/pic/1f0/972212/1385255/104.jpg](https://miro.medium.com/v2/resize:fit:1200/1*ucL7YQ2v8aaOy426soLPZA.png)
+![Bg](https://miro.medium.com/v2/resize:fit:4800/format:webp/1*ucL7YQ2v8aaOy426soLPZA.png)
 
 **Crypto App**
 
